@@ -1,11 +1,11 @@
 # 1-GET-TE-Garena-Free-Fire-Hack-
 Free Fire Generator 2021 - Free Unlimited Diamonds and Coins
 
-`CLICK HERE TO USE Hack. <https://www.biharirockers.com/2021/03/how-to-get-1000-diamonds-in-free-fire.html>`__
+__CLICK HERE TO USE Hack > <https://bit.ly/3D1JXbX>__
 
-`CLICK HERE TO USE Hack. <https://www.biharirockers.com/2021/09/free-20000-diamonds-in-free-fire-id-2021.html>`__
+__CLICK HERE TO USE Hack > <https://bit.ly/3AYsm49>__
 
-`CLICK HERE TO USE Hack. <https://www.biharirockers.com/>`__
+__CLICK HERE TO USE Hack > <https://bit.ly/3B0YzYm>__
 
 This Free Fire generator 2021 tool simply works on the FFG file which is the safest way to get unlimited free fire Diamonds and coins. You are one click away from generating unlimited diamonds and coins on your free fire account. The free Fire generator tool is very commonly used for safe hacks.
 Free Fire Diamond Hack 2021 | 99999 Free Fire Diamond Generator
